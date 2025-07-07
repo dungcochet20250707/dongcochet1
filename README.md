@@ -17,4 +17,4 @@
 
 但要注意的是，选择正规平台非常重要，避免进入钓鱼网站或被恶意广告干扰。建议优先使用用户评价高、更新稳定、界面简洁的平台，这样不仅体验更好，也能更安全地享受观影过程。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dungcochet20250707/dongcochet1 ）</span>
